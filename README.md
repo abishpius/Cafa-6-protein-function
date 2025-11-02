@@ -1,1 +1,0 @@
-# Cafa-6-protein-function
